@@ -8,6 +8,6 @@ no qual já me arrisquei criando dois projetos **MUITO SIMPLES**, mas que tenho 
 
 ## O que jogo?
 
-Eu gosto muito de jogos indies e de jogos antigos, mas não tenho nada contra os jogos atuais e AAA, muito deles são incríveis. [Aqui](https://www.ign.com/playlist/Ralob) você pode dar uma olhada no meu perfil do Playlist da *IGN*.
+Eu gosto muito de jogos indies e de jogos antigos, mas não tenho nada contra os jogos atuais e AAA, muito deles são incríveis. [Aqui](https://www.ign.com/playlist/Ralob) você pode dar uma olhada no meu perfil do Playlist da **IGN**.
 
 
